@@ -1,1 +1,0 @@
-# Another-Mii-Maker-BETA
